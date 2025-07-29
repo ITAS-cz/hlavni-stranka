@@ -1,0 +1,2 @@
+# hlavni-stranka
+ignorujte to!!
